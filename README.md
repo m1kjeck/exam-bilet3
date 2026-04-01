@@ -1,1 +1,0 @@
-# exam-bilet3
